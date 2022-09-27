@@ -8,7 +8,7 @@ I am a programmer and also a student in computer engineering, I have knowledge i
 ![](174855(2).png)
 
 [Also my twitter](https://twitter.com/sote343)      
-![](twitter.png)
+![](cons8-twitter.gif)
 
 ### Cheers!
 
